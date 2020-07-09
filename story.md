@@ -1,3 +1,4 @@
+*(text distributed under CC BY-SA)*
 
 
 ## Chapter 1
