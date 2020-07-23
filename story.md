@@ -64,3 +64,5 @@ Radiance, Fragrance and Inessa went into the living room to the table Anwyll was
 "I'm Inessa, a 214 year old faerie. I made friends with Fragrance and Radiance seventy years ago. I have lots of friends in this town.", Inessa introduced herself.
 
 "Nice to meet you, Inessa. Thank you for coming. And I'm Anwyll. I'm 15 years old, I was transported to this world two weeks ago. Fragrance found me and took me to her home. I was a school student in my world.", Anwyll introduced himself.
+
+"Nice to meet you"
