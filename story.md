@@ -51,4 +51,16 @@ Later, at the evening, when Fragrance was cooking supper and Anwyll was sitting 
 
 "Fragrance, is that tiny human boy you told us about here? Can we see him?", Inessa asked.
 
-"Of course you can!", Fragrance responded.
+"Of course you can! He is there, in my living room.", Fragrance responded.
+
+Radiance, Fragrance and Inessa went into the living room to the table Anwyll was staying on.
+
+"Introduce yourself, please.", Fragrance asked her friends.
+
+"I'm Radiance, a Fragrance's childhood friend. I'm a 350 year old sky elf, currently working as senior developer at the 'Heaven Lilies' company. I frequently visit Fragrance during my vacations."
+
+"Nice to meet you, Radiance! Thank you for coming.", Anwyll responded.
+
+"I'm Inessa, a 214 year old faerie. I made friends with Fragrance and Radiance seventy years ago. I have lots of friends in this town.", Inessa introduced herself.
+
+"Nice to meet you, Inessa. Thank you for coming. And I'm Anwyll. I'm 15 years old, I was transported to this world two weeks ago. Fragrance found me and took me to her home. I was a school student in my world.", Anwyll introduced himself.
