@@ -1,7 +1,8 @@
 *(text distributed under CC BY-SA)*
 
+# A new world for a tiny boy
 
-## Chapter 1
+## Chapter 1 -- The Slumber Party
 
 In a nice and sunny summer day a gorgeous light-brown skinned elven woman Fragrance came back from her work. She was living in her own one-room apartment at the third floor of the house. In her apartment, her tiny human friend Anwyll were waiting for her.
 
