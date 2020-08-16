@@ -66,3 +66,22 @@ Radiance, Fragrance and Inessa went into the living room to the table Anwyll was
 "Nice to meet you, Inessa. Thank you for coming. And I'm Anwyll. I'm 15 years old, I was transported to this world two weeks ago. Fragrance found me and took me to her home. I was a school student in my world.", Anwyll introduced himself.
 
 "Nice to meet you"
+
+
+Fragrance, Radiance, Anwyll and Inessa came to the kitchen and had a supper. After the meal, Fragrance and Radiance changed their home clothes to cute pajamas.
+
+"Hey, Anwyll! I have made this pajama for you. Would you like to try it on?", Fragrance asked.
+
+"Yes, surely".
+
+Anwyll hid behind the doll house and changed his clothes to pajama that Fragrance has made for him.
+
+"Wow, you look very cute in this pajama!", Radiance said to Anwyll.
+
+Soon, the slumber party started. Anwyll had fun with his new friends. They had snacks, played games, listened to the music. Before going to bed, they decided to watch a movie. Anwyll was sitting on Radiance, and Inessa was sitting near him.
+
+"Thank you for visiting me! I'm very glad to meet you! And thank you, Fragrance, for caring about me!", Anwyll said.
+
+"You're welcome, Anwyll!", Fragrance responded.
+
+Anwyll felt asleep during the movie. He was glad to make friends in the giant world that was foreign to him.
