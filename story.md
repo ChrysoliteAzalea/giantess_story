@@ -34,7 +34,7 @@ Fragrance went to bathroom and changed to her home clothes. After that she went 
 
 "Yeah, I feel for you", Fragrance said, and then took Anwyll and gave him a kiss.
 
-"Anwyll, I have something to tell you. Today I am having a slumber party with my friends, Inessa and Radiance. Do you want to join us?", Fragrance asked her friend.
+"Anwyll, I have something to tell you. Today I am having a slumber party with my friends, Inessa and Radiance. Do you want to join us?"
 
 "Of course I do!", Anwyll said joyfully.
 
@@ -52,7 +52,7 @@ Later, at the evening, when Fragrance was cooking supper and Anwyll was sitting 
 
 "Fragrance, is that tiny human boy you told us about here? Can we see him?", Inessa asked.
 
-"Of course you can! He is there, in my living room.", Fragrance responded.
+"Of course you can! He is there, in my living room."
 
 Radiance, Fragrance and Inessa went into the living room to the table Anwyll was staying on.
 
@@ -62,9 +62,9 @@ Radiance, Fragrance and Inessa went into the living room to the table Anwyll was
 
 "Nice to meet you, Radiance! Thank you for coming.", Anwyll responded.
 
-"I'm Inessa, a 214 year old faerie. I made friends with Fragrance and Radiance seventy years ago. I have lots of friends in this town.", Inessa introduced herself.
+"I'm Inessa, a 214 year old faerie. I made friends with Fragrance and Radiance seventy years ago. I have lots of friends in this town."
 
-"Nice to meet you, Inessa. Thank you for coming. And I'm Anwyll. I'm 15 years old, I was transported to this world two weeks ago. Fragrance found me and took me to her home. I was a school student in my world.", Anwyll introduced himself.
+"Nice to meet you, Inessa. Thank you for coming. And I'm Anwyll. I'm 15 years old, I was transported to this world two weeks ago. Fragrance found me and took me to her home. I was a school student in my world."
 
 "Nice to meet you"
 
@@ -77,12 +77,12 @@ Fragrance, Radiance, Anwyll and Inessa came to the kitchen and had a supper. Aft
 
 Anwyll hid behind the doll house and changed his clothes to pajama that Fragrance has made for him.
 
-"Wow, you look very cute in this pajama!", Radiance said to Anwyll.
+"Wow, you look very cute in this pajama!", Radiance said.
 
 Soon, the slumber party started. Anwyll had fun with his new friends. They had snacks, played games, listened to the music. Before going to bed, they decided to watch a movie. Anwyll was sitting on Radiance, and Inessa was sitting near him.
 
 "Thank you for visiting me! I'm very glad to meet you! And thank you, Fragrance, for caring about me!", Anwyll said.
 
-"You're welcome, Anwyll!", Fragrance responded.
+"You're welcome, Anwyll!"
 
 Anwyll felt asleep during the movie. He was glad to make friends in the giant world that was foreign to him.
