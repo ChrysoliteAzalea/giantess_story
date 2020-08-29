@@ -2,6 +2,28 @@
 
 # A new world for a tiny boy
 
+## Prologue
+
+It was an ordinary summer day when a 15 years old boy called Anwyll was walking in a city park. It was nearly 8 p.m. when he heard a strange sound, that was like the sound of an explosion, but at the same time was noticeably different from it. The sky turned dark-red and then dark-purple, the air gained a strange smell, and the sight of the environment became blurry. That's the last thing Anwyll remembered before waking up in another, strange, different world.
+
+
+It was morning when Anwyll woke up. He has found himself on what seemed to be a huge bench. He was surrounded by giant grass several times taller than him, by bushes and blooming flowers at the height of his face. The bench was huge for him, and even if he managed to get to the ground unharmed, he couldn't go to any significant distance due to his size. Anwyll took the sandwich that he prepared before going for a walk for a light meal.
+
+
+"Hello! Who are you?", said the unfamiliar voice. Anwyll looked up and saw a gorgeous light-brown skinned elven woman looking at the bench.
+
+"My name is Anwyll. I was going for a walk when I heard a strange noise. Then I woke up here. Could you please help me? I don't know anyone here."
+
+"Sure. My name is Fragrance. I can take you to my house and take care of you. Would you like to go with me?"
+
+"Yes, sure!"
+
+"Alright."
+
+Fragrance took him and put him on her shoulder, wrapping her hair around him.
+
+"Thank you, Fragrance! Thank you so much!"
+
 ## Chapter 1 -- The Slumber Party
 
 In a nice and sunny summer day a gorgeous light-brown skinned elven woman Fragrance came back from her work. She was living in her own one-room apartment at the third floor of the house. In her apartment, her tiny human friend Anwyll were waiting for her.
